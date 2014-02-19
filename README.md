@@ -15,3 +15,7 @@ Ajánlom, hogy legalább két doksit különböztessünk meg.
 -A másik legyen a publikus doksi, amit majd megmutatunk a bíráknak, hogy ki mennyit dolgozott :d
 
 Majd ha jön a többi info, majd bővíthetjük az infokkal.
+
+
+A közösen elkészítendő doksi:
+https://drive.google.com/file/d/0B7M4xU840Baab0loSHlDS1J5bnM/edit?usp=sharing
