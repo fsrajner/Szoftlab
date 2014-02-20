@@ -19,4 +19,4 @@ Majd ha jön a többi info, majd bővíthetjük az infokkal.
 
 A közösen elkészítendő doksi:
 
-https://docs.google.com/document/d/1-jFQx3dNaFqHWQMCZryn_mCbH78pFZwb338mKC94QjQ/edit?usp=sharing
+https://drive.google.com/folderview?id=0B7M4xU840BaaZ3BsN0pnajRlT3M&usp=sharing
